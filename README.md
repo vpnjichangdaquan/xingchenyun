@@ -14,7 +14,7 @@
 
 **星辰VPN官方注册入口：**
 
-[星辰VPN最新注册入口](https://xc1.luniu8.com/?code=Qx78EUBP)
+[星辰VPN最新注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -202,6 +202,6 @@
 
 如果你想进一步了解星辰VPN当前的套餐、注册方式和服务说明，可以通过下面的官方注册入口查看：
 
-[星辰VPN最新注册入口](https://xc1.luniu8.com/?code=Qx78EUBP)
+[星辰VPN最新注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
 
 建议先核对实际套餐价格、流量额度、设备限制和服务条款，再根据自己的需求选择合适的档位。
